@@ -7,3 +7,5 @@ My blood type is AB, just in case you need a blood donor well, I'm not donating 
 Always available for a hire.
 - I’m not looking for collaboration tho, maybe not now
 - Contact me at dabby747@gmail.com
+
+Check out and follow my social media accounts for weekly updates.
